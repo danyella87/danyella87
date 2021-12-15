@@ -2,7 +2,7 @@
 - 👀 I’m interested in brands clothing 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on the future with bigger projects .
-- 📫 How to reach me dm my mailbox dany_etaa@yahoo.com if you desire something whit your own personalised phrase!
+- 📫 How to reach me dm my mailbox dany_etaa@yahoo.com if you desire something with  your own personalised phrase!
 
 <!---
 danyella87/danyella87 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
